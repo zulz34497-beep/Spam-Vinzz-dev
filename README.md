@@ -1,0 +1,2 @@
+# Spam-Vinzz-dev
+Spam
